@@ -2,7 +2,6 @@
 
 <div align="center">
 
-# **Hi, I'm blooroot** 👋 
-### I'm a future software engineer
+# **Hi, I'm blooroot** 🧍‍♀️
 
 </div>
