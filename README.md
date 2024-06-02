@@ -2,6 +2,6 @@
 
 <div align="center">
 
-# **Hi, I'm blooroot** 🧍‍♀️
+# **ʜɪ, ɪ'ᴍ ʙʟᴏᴏʀᴏᴏᴛ** 🧍‍♀️
 
 </div>
